@@ -1,1 +1,1 @@
-23 Days with Photoshop .
+23 Days with Photoshop
